@@ -1,0 +1,1 @@
+Today I picked up a large (think 30 lbs) concrete frog from the neighbor's trash heap and actually forgot about it til I looked across the room and saw it staring at me. What a time to be alive!
